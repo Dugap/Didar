@@ -1,1 +1,1 @@
-delai
+delai normal'noi
